@@ -1,0 +1,4 @@
+- hey, im minja or nea
+- dunno why i signed up, but hell yeah
+- nea#3104
+- dont have twitter (yet)
